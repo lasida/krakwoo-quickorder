@@ -1,1 +1,1 @@
-# krakwoo-quickorder
+# krakwoo-quickorder [FREE VERSION]
